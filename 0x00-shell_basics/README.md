@@ -1,1 +1,1 @@
-"Type your message direct"
+Read me my friend
